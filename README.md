@@ -2,7 +2,7 @@
 
 **`Desenvolvedor Bot (Discord)`**
 
-Olá! Sou Lucas Leonardi, tenho 24 anos e sou natural de Barretos, São Paulo. Sou graduado em Sistemas de Informação pela UNIFEB e tenho grande interesse por tecnologia, desenvolvimento de software e inovação. Atualmente, faço parte do grupo Sevskaya, onde atuamos em diferentes frentes de negócio, incluindo o desenvolvimento e a gestão de servidores RedM e FiveM, além da construção de projetos voltados ao setor de tecnologia. Entre nossos objetivos futuros está a expansão para soluções de tecnologia aplicada ao agronegócio, unindo inovação e eficiência para atender às demandas do setor. Estou sempre em busca de novos desafios, aprendizado contínuo e oportunidades para transformar ideias em soluções tecnológicas de impactoo.
+Olá! Sou Lucas Leonardi, tenho 24 anos e sou natural de Barretos, São Paulo. Sou graduado em Sistemas de Informação pela UNIFEB e tenho grande interesse por tecnologia, desenvolvimento de software e inovação. Atualmente, faço parte do grupo Sevskaya, onde atuamos em diferentes frentes de negócio, incluindo o desenvolvimento e a gestão de servidores RedM e FiveM, além da construção de projetos voltados ao setor de tecnologia. Entre nossos objetivos futuros está a expansão para soluções de tecnologia aplicada ao agronegócio, unindo inovação e eficiência para atender às demandas do setor. Estou sempre em busca de novos desafios, aprendizado contínuo e oportunidades para transformar ideias em soluções tecnológicas de impacto.
 
 <p align="left">
     </a> 
